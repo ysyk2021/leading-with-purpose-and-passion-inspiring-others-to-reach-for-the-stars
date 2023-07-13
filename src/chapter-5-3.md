@@ -1,4 +1,4 @@
-Chapter 4: Developing Emotional Intelligence as a Leader: Managing Emotions Effectively as a Leader
+Managing Emotions Effectively as a Leader
 ===================================================================================================
 
 Emotional intelligence is essential for effective leadership. In this chapter, we will explore strategies for developing emotional intelligence and managing emotions effectively as a leader.

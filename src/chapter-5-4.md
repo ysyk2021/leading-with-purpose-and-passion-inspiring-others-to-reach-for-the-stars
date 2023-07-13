@@ -1,4 +1,4 @@
-Chapter 4: Developing Emotional Intelligence as a Leader: Building Strong Relationships with Team Members
+Building Strong Relationships with Team Members
 =========================================================================================================
 
 Building strong relationships with team members is an essential component of emotional intelligence in leadership. In this chapter, we will explore techniques for building strong relationships with team members and why it's important for effective leadership.

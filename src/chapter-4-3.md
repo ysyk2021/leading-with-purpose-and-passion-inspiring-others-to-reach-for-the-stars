@@ -1,4 +1,4 @@
-Chapter 3: Fostering a Positive Workplace Culture: Addressing Common Challenges in Workplace Culture
+Addressing Common Challenges in Workplace Culture
 ====================================================================================================
 
 A positive workplace culture is essential for achieving success and inspiring your team to reach for the stars. In this chapter, we will explore common challenges in workplace culture and provide strategies for fostering a positive and productive environment.

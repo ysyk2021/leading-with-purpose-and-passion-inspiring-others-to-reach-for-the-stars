@@ -1,4 +1,4 @@
-Chapter 6: Overcoming Common Challenges: Managing Conflicts and Difficult Conversations
+Managing Conflicts and Difficult Conversations
 =======================================================================================
 
 Managing conflicts and difficult conversations is a common challenge that leaders face. In this chapter, we will explore strategies for managing conflicts and having difficult conversations effectively.

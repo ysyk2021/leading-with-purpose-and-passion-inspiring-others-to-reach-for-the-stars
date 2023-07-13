@@ -1,4 +1,4 @@
-Chapter 3: Fostering a Positive Workplace Culture: Empowering Employees to Reach Their Full Potential
+Empowering Employees to Reach Their Full Potential
 =====================================================================================================
 
 Empowering employees to reach their full potential is essential for creating a positive workplace culture. In this chapter, we will explore strategies for empowering your team and creating an environment where everyone feels valued and supported.

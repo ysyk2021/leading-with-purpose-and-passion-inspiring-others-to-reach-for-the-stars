@@ -1,4 +1,4 @@
-Introduction: The Importance of Purpose and Passion in Leadership
+The Importance of Purpose and Passion in Leadership
 =================================================================
 
 Purpose and passion are essential components of effective leadership. When you lead with purpose and passion, you create a positive work environment where team members feel valued and supported. This, in turn, promotes motivation, engagement, and productivity, which leads to better results for your organization.

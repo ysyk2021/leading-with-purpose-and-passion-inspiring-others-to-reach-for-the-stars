@@ -1,4 +1,4 @@
-Chapter 4: Developing Emotional Intelligence as a Leader: Recognizing the Importance of Emotional Intelligence in Leadership
+Recognizing the Importance of Emotional Intelligence in Leadership
 ============================================================================================================================
 
 Emotional intelligence is a critical component of effective leadership. In this chapter, we will explore the importance of emotional intelligence in leadership and why it's essential for success.

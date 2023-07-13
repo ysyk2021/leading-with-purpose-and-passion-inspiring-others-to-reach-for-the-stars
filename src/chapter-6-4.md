@@ -1,4 +1,4 @@
-Chapter 5: Leading with Vision and Innovation: Encouraging Creativity and Innovation Among Team Members
+Encouraging Creativity and Innovation Among Team Members
 =======================================================================================================
 
 As a leader, it's essential to foster creativity and innovation in your team. By encouraging new ideas and approaches, you can inspire your team members to reach for the stars and achieve their full potential. In this chapter, we'll explore strategies for leading with vision and innovation and encouraging creativity among team members.

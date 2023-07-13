@@ -1,4 +1,4 @@
-Chapter 2: Communicating Effectively as a Leader: Addressing Common Communication Challenges
+Addressing Common Communication Challenges
 ============================================================================================
 
 Effective communication is essential for purposeful and passionate leadership. However, common communication challenges can make it difficult to convey messages clearly and build connection with team members. In this chapter, we'll explore strategies for addressing common communication challenges.

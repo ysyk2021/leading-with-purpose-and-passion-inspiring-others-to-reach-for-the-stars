@@ -1,4 +1,4 @@
-Chapter 3: Fostering a Positive Workplace Culture: Techniques for Building a Positive Workplace Culture
+Techniques for Building a Positive Workplace Culture
 =======================================================================================================
 
 Creating a positive workplace culture is essential for purposeful and passionate leadership. A positive work environment can inspire motivation, engagement, and productivity among team members. In this chapter, we'll explore techniques for building a positive workplace culture.

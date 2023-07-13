@@ -1,4 +1,4 @@
-Chapter 2: Communicating Effectively as a Leader: Techniques for Effective Communication as a Leader
+Techniques for Effective Communication as a Leader
 ====================================================================================================
 
 Effective communication is essential for purposeful and passionate leadership. By communicating effectively, leaders can build connection, inspire motivation, and promote collaboration among team members. In this chapter, we'll explore techniques for effective communication as a leader.

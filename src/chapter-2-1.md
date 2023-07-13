@@ -1,4 +1,4 @@
-Chapter 1: Identifying Your Purpose and Passion: Understanding the Connection Between Purpose, Passion, and Leadership
+Understanding the Connection Between Purpose, Passion, and Leadership
 ======================================================================================================================
 
 Identifying your purpose and passion is essential for purposeful and passionate leadership. When you lead with purpose and passion, you inspire trust, build connection, and create a sense of direction and motivation among team members. In this chapter, we'll explore the connection between purpose, passion, and leadership.

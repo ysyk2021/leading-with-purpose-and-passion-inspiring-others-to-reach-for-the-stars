@@ -1,4 +1,4 @@
-Chapter 6: Overcoming Common Challenges: Coping with Stress and Burnout
+Coping with Stress and Burnout
 =======================================================================
 
 Stress and burnout are common challenges that leaders face in today's fast-paced work environment. In this chapter, we will explore strategies for coping with stress and burnout and maintaining a healthy work-life balance.

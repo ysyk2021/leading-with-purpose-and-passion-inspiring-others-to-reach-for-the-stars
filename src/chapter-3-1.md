@@ -1,4 +1,4 @@
-Chapter 2: Communicating Effectively as a Leader: The Role of Communication in Purposeful and Passionate Leadership
+The Role of Communication in Purposeful and Passionate Leadership
 ===================================================================================================================
 
 Communication is at the heart of purposeful and passionate leadership. Effective communication enables leaders to articulate their vision and values, build connection with team members, and inspire motivation and engagement. In this chapter, we'll explore the role of communication in purposeful and passionate leadership.

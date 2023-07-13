@@ -1,4 +1,4 @@
-Introduction: What is Purposeful and Passionate Leadership?
+What is Purposeful and Passionate Leadership?
 ===========================================================
 
 Purposeful and passionate leadership is a style of leadership that involves aligning your values, interests, and skills with your organization's mission and vision. When you lead with purpose and passion, you inspire trust, build connection, and create a sense of direction and motivation among team members.

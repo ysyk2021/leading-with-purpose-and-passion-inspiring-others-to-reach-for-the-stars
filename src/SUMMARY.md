@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [The importance of purpose and passion in leadership](chapter-1-1.md)
   - [What is purposeful and passionate leadership?](chapter-1-2.md)
   - [Benefits of inspiring others to reach for their potential](chapter-1-3.md)
@@ -35,9 +34,5 @@
   - [Coping with stress and burnout](chapter-7-2.md)
   - [Managing conflicts and difficult conversations](chapter-7-3.md)
   - [Dealing with setbacks and failures](chapter-7-4.md)
-- [Conclusion](chapter-8.md)
-  - [Recap of key takeaways](chapter-8-1.md)
-  - [Final thoughts on purposeful and passionate leadership](chapter-8-2.md)
-  - [Encouragement to apply these principles in your own leadership practices](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

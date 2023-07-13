@@ -1,4 +1,4 @@
-Chapter 6: Overcoming Common Challenges: Addressing Common Challenges in Purposeful and Passionate Leadership
+Addressing Common Challenges in Purposeful and Passionate Leadership
 =============================================================================================================
 
 As a purposeful and passionate leader, you will undoubtedly face challenges along the way. In this chapter, we will explore common challenges in purposeful and passionate leadership and provide strategies for overcoming them.

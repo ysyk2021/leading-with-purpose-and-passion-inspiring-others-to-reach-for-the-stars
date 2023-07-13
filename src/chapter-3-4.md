@@ -1,4 +1,4 @@
-Chapter 2: Communicating Effectively as a Leader: Building Connection through Communication
+Building Connection through Communication
 ===========================================================================================
 
 Effective communication is essential for purposeful and passionate leadership. By communicating effectively, leaders can build connection, inspire motivation, and promote collaboration among team members. In this chapter, we'll explore strategies for communicating effectively as a leader and building connection through communication.

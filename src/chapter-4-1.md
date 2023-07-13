@@ -1,4 +1,4 @@
-Chapter 3: Fostering a Positive Workplace Culture: The Importance of Workplace Culture in Purposeful and Passionate Leadership
+The Importance of Workplace Culture in Purposeful and Passionate Leadership
 ==============================================================================================================================
 
 Fostering a positive workplace culture is crucial for purposeful and passionate leadership. A positive work environment can inspire motivation, engagement, and productivity among team members. In this chapter, we'll explore the importance of workplace culture in purposeful and passionate leadership.

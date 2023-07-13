@@ -1,4 +1,4 @@
-Chapter 1: Identifying Your Purpose and Passion: Developing Self-Awareness as a Leader
+Developing Self-Awareness as a Leader
 ======================================================================================
 
 Identifying your purpose and passion is the foundation of purposeful and passionate leadership. However, before you can identify your purpose and passion, you must first develop self-awareness as a leader. In this chapter, we'll explore how to develop self-awareness as a leader and use it to identify your purpose and passion.

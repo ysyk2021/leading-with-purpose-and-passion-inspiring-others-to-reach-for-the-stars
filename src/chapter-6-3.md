@@ -1,4 +1,4 @@
-Chapter 5: Leading with Vision and Innovation: Overcoming Resistance to Change
+Overcoming Resistance to Change
 ==============================================================================
 
 Leading with vision and innovation requires the ability to overcome resistance to change. Change can be difficult and uncomfortable, and some team members may resist new ideas and approaches. In this chapter, we'll explore strategies for leading with vision and innovation and overcoming resistance to change.

@@ -1,4 +1,4 @@
-Chapter 6: Overcoming Common Challenges: Dealing with Setbacks and Failures
+Dealing with Setbacks and Failures
 ===========================================================================
 
 As a leader, setbacks and failures are inevitable. However, it's how you deal with these challenges that determines your success as a leader. In this chapter, we'll explore techniques for overcoming common challenges, specifically dealing with setbacks and failures.

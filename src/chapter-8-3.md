@@ -1,4 +1,4 @@
-Conclusion: Encouragement to Apply These Principles in Your Own Leadership Practices
+Encouragement to Apply These Principles in Your Own Leadership Practices
 ====================================================================================
 
 Leading with purpose and passion is a journey that requires continuous learning and growth. By embracing the principles outlined in this book, you can become a more effective leader who inspires others to reach for the stars. In this final chapter, we'll encourage you to apply these principles in your own leadership practices.

@@ -1,4 +1,4 @@
-Conclusion: Recap of Key Takeaways
+Recap of Key Takeaways
 ==================================
 
 In this book, we've covered a range of topics related to purposeful and passionate leadership. Here are some of the most important takeaways:
