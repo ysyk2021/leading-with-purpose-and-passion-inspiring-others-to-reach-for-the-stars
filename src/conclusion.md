@@ -1,8 +1,5 @@
 # Conclusion
 
-Conclusion
-==========
-
 In this book, we've explored the principles of purposeful and passionate leadership and how they can help you inspire others to reach for their potential. We've covered topics such as identifying your personal purpose and passion, communicating effectively as a leader, building trust and connection with team members, fostering a positive workplace culture, dealing with setbacks and failures, and developing emotional intelligence as a leader.
 
 Recap of Key Takeaways
