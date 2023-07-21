@@ -6,5 +6,4 @@ Whether you're an experienced leader or just starting out on your leadership jou
 
 This book is an essential resource for anyone seeking to improve their leadership skills and drive growth and success within their organization. With a focus on personal growth, collaboration, and excellence, Leading with Purpose and Passion: Inspiring Others to Reach for the Stars is a must-read for anyone who wants to become a purposeful and passionate leader.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
