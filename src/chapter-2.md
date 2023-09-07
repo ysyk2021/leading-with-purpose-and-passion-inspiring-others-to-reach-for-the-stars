@@ -1,5 +1,3 @@
-Chapter 1: Identifying Your Purpose and Passion
-===============================================
 
 Identifying your purpose and passion is the foundation of purposeful and passionate leadership. When you lead with purpose and passion, you inspire trust, build connection, and create a sense of direction and motivation among team members. In this chapter, we'll explore how to identify your purpose and passion.
 

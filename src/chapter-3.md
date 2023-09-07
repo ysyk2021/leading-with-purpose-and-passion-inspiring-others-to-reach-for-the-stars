@@ -1,5 +1,3 @@
-Chapter 2: Communicating Effectively as a Leader
-================================================
 
 Effective communication is essential for purposeful and passionate leadership. By communicating effectively, leaders can build connection, inspire motivation, and promote collaboration among team members. In this chapter, we'll explore the role of communication in purposeful and passionate leadership, techniques for effective communication as a leader, addressing common communication challenges, and building connection through communication.
 

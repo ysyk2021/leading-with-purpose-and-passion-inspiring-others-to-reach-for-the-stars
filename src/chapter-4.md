@@ -1,5 +1,3 @@
-Chapter 3: Fostering a Positive Workplace Culture
-=================================================
 
 Fostering a positive workplace culture is essential for purposeful and passionate leadership. In this chapter, we will explore the importance of workplace culture, provide techniques for building a positive workplace culture, address common challenges, and discuss ways to empower employees to reach their full potential.
 

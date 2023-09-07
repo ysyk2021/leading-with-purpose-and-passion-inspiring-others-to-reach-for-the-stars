@@ -1,5 +1,3 @@
-Chapter 4: Developing Emotional Intelligence as a Leader
-========================================================
 
 Emotional intelligence is a critical component of effective leadership. In this chapter, we will explore why emotional intelligence is important in leadership and provide techniques for developing emotional intelligence.
 

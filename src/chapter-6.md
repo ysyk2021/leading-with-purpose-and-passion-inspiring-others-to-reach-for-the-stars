@@ -1,5 +1,3 @@
-Chapter 5: Leading with Vision and Innovation
-=============================================
 
 Leading with vision and innovation is essential for purposeful and passionate leadership. In this chapter, we will explore the importance of vision and innovation, provide techniques for developing a clear and compelling vision, address overcoming resistance to change, and discuss ways to encourage creativity and innovation among team members.
 
