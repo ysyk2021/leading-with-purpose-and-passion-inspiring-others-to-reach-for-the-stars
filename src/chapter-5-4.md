@@ -1,5 +1,4 @@
-Chapter: Building Strong Relationships with Team Members
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building strong relationships with team members as a leader. Developing meaningful connections and fostering a sense of belonging within the team is crucial for inspiring others to reach for the stars. By prioritizing relationship-building, leaders can create an environment where individuals feel valued, motivated, and empowered to achieve their full potential.
 

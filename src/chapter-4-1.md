@@ -1,5 +1,4 @@
-Chapter 7: The Importance of Workplace Culture in Purposeful and Passionate Leadership
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of workplace culture in purposeful and passionate leadership. A strong and positive workplace culture sets the foundation for inspiring others, driving engagement, and achieving extraordinary results. By understanding the importance of cultivating a purpose-driven and inclusive culture, leaders can create an environment where individuals thrive, collaboration flourishes, and collective goals are pursued with passion.
 

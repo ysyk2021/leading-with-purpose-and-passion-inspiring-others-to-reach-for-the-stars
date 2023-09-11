@@ -1,5 +1,4 @@
-Chapter: Building Connection through Communication
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building connection through effective communication as a leader. Communication is a powerful tool that allows leaders to connect with their team members, inspire them, and align everyone towards a common purpose. By mastering the art of communication, leaders can foster trust, collaboration, and engagement, ultimately motivating others to reach for the stars.
 

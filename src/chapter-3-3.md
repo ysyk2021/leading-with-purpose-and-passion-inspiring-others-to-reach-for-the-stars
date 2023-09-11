@@ -1,5 +1,4 @@
-Chapter: Addressing Common Communication Challenges
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common communication challenges that leaders often encounter and strategies for effectively addressing them. Clear and effective communication is vital for inspiring others to reach for the stars. By understanding and proactively managing these challenges, leaders can enhance their communication skills and build stronger connections with their teams.
 

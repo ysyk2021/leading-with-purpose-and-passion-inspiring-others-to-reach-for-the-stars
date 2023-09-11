@@ -1,5 +1,4 @@
-Chapter: Techniques for Effective Communication as a Leader
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for effective communication as a leader. Communication is a vital skill for inspiring others to reach for the stars and achieving collective success. By mastering these techniques, leaders can enhance their communication effectiveness and create a positive and productive work environment.
 

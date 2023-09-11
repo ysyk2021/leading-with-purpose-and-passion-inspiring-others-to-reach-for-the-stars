@@ -1,5 +1,4 @@
-Chapter 5: Building Trust through Purposeful and Passionate Leadership
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of trust in leadership and how purposeful and passionate leaders can build trust within their teams and organizations. Trust is the cornerstone of effective leadership, fostering collaboration, engagement, and high-performance. By embodying purpose and passion, leaders can establish a foundation of trust that empowers individuals to reach for the stars.
 

@@ -1,5 +1,4 @@
-Chapter: Recognizing the Importance of Emotional Intelligence in Leadership
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of emotional intelligence in leadership. Emotional intelligence is the ability to recognize, understand, and manage our own emotions and effectively navigate relationships with others. As a leader, having strong emotional intelligence can greatly impact your ability to inspire, motivate, and guide others towards reaching for the stars.
 

@@ -1,5 +1,4 @@
-Chapter: Managing Conflicts and Difficult Conversations
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for managing conflicts and navigating difficult conversations as a leader. Conflict is inevitable in any team or organization, but how it is handled can greatly impact relationships, productivity, and overall success. By mastering the art of conflict management and open communication, leaders can create a harmonious and collaborative environment that inspires others to reach for the stars.
 

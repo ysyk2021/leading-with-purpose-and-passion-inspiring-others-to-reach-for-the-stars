@@ -1,5 +1,4 @@
-Chapter: Encouraging Creativity and Innovation Among Team Members
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for leaders to inspire and foster creativity and innovation among their team members. By creating an environment that values and encourages new ideas, leaders can unlock the full potential of their teams and drive impactful innovation.
 

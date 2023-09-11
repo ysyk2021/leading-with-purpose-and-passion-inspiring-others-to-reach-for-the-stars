@@ -1,5 +1,4 @@
-Chapter: Managing Emotions Effectively as a Leader
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of managing emotions effectively as a leader and delve into strategies and techniques to develop emotional intelligence. Emotional intelligence plays a crucial role in building strong relationships, making sound decisions, and inspiring others to reach their full potential.
 

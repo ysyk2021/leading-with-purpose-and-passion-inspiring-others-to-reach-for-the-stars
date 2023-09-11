@@ -1,5 +1,4 @@
-Chapter: Addressing Common Challenges in Purposeful and Passionate Leadership
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common challenges that arise in purposeful and passionate leadership and discuss strategies for effectively addressing them. Leading with purpose and passion is not without its obstacles, but by anticipating and navigating these challenges, leaders can continue to inspire others and make a meaningful impact.
 

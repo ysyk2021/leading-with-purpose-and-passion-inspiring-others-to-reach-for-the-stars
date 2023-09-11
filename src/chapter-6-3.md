@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Resistance to Change
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for overcoming resistance to change as a leader. Change is an essential part of growth and progress, but it can often be met with resistance from individuals and teams. By understanding the reasons behind this resistance and employing effective approaches, leaders can navigate through change successfully, inspiring others to embrace new possibilities and reach for the stars.
 

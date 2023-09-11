@@ -1,5 +1,4 @@
-Chapter 7: Addressing Common Challenges in Workplace Culture
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common challenges that leaders face in shaping and maintaining a positive workplace culture. A strong and healthy workplace culture is vital for fostering employee engagement, collaboration, and productivity. By addressing these challenges head-on, leaders can create a thriving environment where individuals are inspired to reach for the stars.
 

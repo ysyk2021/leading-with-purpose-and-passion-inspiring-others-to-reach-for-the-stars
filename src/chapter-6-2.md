@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Developing a Clear and Compelling Vision
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for developing a clear and compelling vision as a leader. A well-defined vision serves as a guiding light, inspiring others to reach for the stars and aligning them towards a common purpose. By mastering the art of crafting a vision that is both clear and compelling, you can ignite passion and drive in your team, leading them towards extraordinary achievements.
 

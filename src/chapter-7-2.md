@@ -1,5 +1,4 @@
-Chapter: Coping with Stress and Burnout
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for coping with stress and preventing burnout as a leader. Leading with purpose and passion can be demanding, and it's essential to prioritize self-care and well-being. By understanding the signs of stress and burnout and implementing effective coping mechanisms, leaders can maintain their energy, resilience, and motivation to inspire others to reach for the stars.
 

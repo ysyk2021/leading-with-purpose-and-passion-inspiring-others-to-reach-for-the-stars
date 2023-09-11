@@ -1,5 +1,4 @@
-Chapter: Understanding the Connection between Purpose, Passion, and Leadership
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound connection between purpose, passion, and leadership. Understanding this relationship is crucial for leaders who aim to inspire others, drive meaningful change, and create a positive impact in their organizations and beyond.
 

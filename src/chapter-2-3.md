@@ -1,5 +1,4 @@
-Chapter: Developing Self-Awareness as a Leader
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of self-awareness in leadership and discuss strategies and practices for developing self-awareness. As a leader, cultivating self-awareness is essential for personal growth, effective decision-making, and building strong relationships with team members.
 

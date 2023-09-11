@@ -1,5 +1,4 @@
-Chapter: Techniques for Identifying Your Personal Purpose and Passion
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies to help individuals identify their personal purpose and passion. Understanding one's purpose and passion is crucial for leaders who aim to inspire others, make meaningful contributions, and lead with authenticity.
 

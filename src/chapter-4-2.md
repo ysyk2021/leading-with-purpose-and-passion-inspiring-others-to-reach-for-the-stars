@@ -1,5 +1,4 @@
-Chapter: Techniques for Building a Positive Workplace Culture
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques and strategies that leaders can employ to build and foster a positive workplace culture. A positive workplace culture is essential as it promotes employee engagement, productivity, and overall organizational success. By creating an environment where employees feel valued, supported, and motivated, leaders can inspire their team members to reach for the stars.
 
